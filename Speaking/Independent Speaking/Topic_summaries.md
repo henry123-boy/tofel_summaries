@@ -11,3 +11,10 @@ ___
     **英文**: enrich your experience and touch with something new and different from your own society-->share what i have gone through with my surrounding people-->more outgoing and socialble-->make more friends
 ___
 连接词：personally speaking, and therefore, such experience, enable, be beneficial to    
+
+**相关题目扩展**
++ Do you agree\dis following stat? if person wants to be happy, should like his\her job or not. reasons and examples to support
+
+这道题也可以套用open mind来答，但是需要个人的例子来说明，典型方法："无中生友"    
+**逻辑链**    
+
