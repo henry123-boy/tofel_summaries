@@ -10,4 +10,4 @@ ___
 + **中文**：扩展视野，接触新鲜事物--》可以和身边的人分享我遇到的经历和事情--》使得自己更加的受欢迎和交际能力强--》更容易交朋友
     **英文**: enrich your experience and touch with something new and different from your own society-->share what i have gone through with my surrounding people-->more outgoing and socialble-->make more friends
 ___
-
+连接词：personally speaking, and therefore, such experience, enable, be beneficial to    
